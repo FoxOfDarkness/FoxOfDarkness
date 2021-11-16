@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FoxOfDarkness
+- 👀 I’m interested in coding
+- 💞️ I’m looking to collaborate on coding
+- 📫 How to reach me dont
